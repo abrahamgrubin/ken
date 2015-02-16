@@ -1,4 +1,0 @@
-# ken
-# ken
-# ken
-# ken
